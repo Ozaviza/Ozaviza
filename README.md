@@ -15,4 +15,4 @@
 - ⚡ Power Generation | CHP Systems  
 
 ### 📫 Let's Connect!  
-🌍 [LinkedIn] linkedin.com/in/jubilee-ozavize-obadaki-5bbb72228 | 🛠 [GitHub] (https://github.com/Ozaviza) | [Twitter] https://x.com/OzavizeO49730?s=09 
+🌍 [LinkedIn] https://linkedin.com/in/jubilee-ozavize-obadaki-5bbb72228 | 🛠 [GitHub] https://github.com/Ozaviza | [Twitter] https://x.com/OzavizeO49730?s=09 
